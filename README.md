@@ -17,7 +17,6 @@
 
 - 📫 How to reach me **shahbbzz0313@gmail.com**
 
-- ⚡ Fun fact **Thirsty to learn**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
